@@ -20,8 +20,7 @@
 
 - 📫 How to reach me **sahingithub86@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/1BpZDWVqT_xSNXuMMolnbRMHUi--17oSz/view?usp=sharing](https://drive.google.com/file/d/1BpZDWVqT_xSNXuMMolnbRMHUi--17oSz/view?usp=sharing)](https://drive.google.com/file/d/1-8VtiWxjRj2DgSNG344Fm3r_n2roCNJs/view?usp=sharing)
-
+- 📄 Know about my experiences https://drive.google.com/file/d/1-8VtiWxjRj2DgSNG344Fm3r_n2roCNJs/view?usp=sharing
 - ⚡ Fun fact **Learning**
 
 <h3 align="left">Connect with me:</h3>
